@@ -18,7 +18,7 @@ Here are some ideas to get you started:
 # Ronald Araújo  
 **Software Engineer**  
 📍 Fortaleza, CE, Brazil
-🔗 [LinkedIn](https://www.linkedin.com/in/ronaldaraujo)
+🔗 [LinkedIn](https://www.linkedin.com/in/ronaldaraujo/?locale=en_US)
 
 ---
 
